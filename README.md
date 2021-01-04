@@ -1,1 +1,1 @@
-# Tech-Buddy.com
+# Tech-Buddy-App.com
